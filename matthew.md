@@ -12,7 +12,7 @@ David and Uriah's wife had Solomon, 7 Solomon's son was Rehoboam, Rehoboam's son
 
 18 The birth of Jesus Christ happened like this:
 
-When Jesus's mother Mary was engaged to Joseph, but before they had had sex, Mary realized she was pregnant by the Holy Spirit. 19 Mary's husband Joseph, who was an honorable man, did not want to embarrass her, so he decided to break off the engagement quietly. 20 As he thought about this, an angel of the Lord appeared to him in a dream saying, "Joseph son of David, do not be afraid to marry her, for her pregnancy is of spiritual origin. 21 She will give birth to a son, and his name will be Jesus, for he will save his people from their sins." 22 All these things happened so that the word of the Lord would be fulfilled.  As the prophets said:
+When Jesus's mother Mary was engaged to Joseph, but before they had had sex, Mary realized she was pregnant by the Holy Spirit. 19 Mary's husband Joseph, who was an honorable man, did not want to embarrass her, so he decided to break off the engagement quietly. 20 As he thought it over, an angel of the Lord appeared to him in a dream saying, "Joseph son of David, do not be afraid to marry her, for her pregnancy is of spiritual origin. 21 She will give birth to a son, and his name will be Jesus, for he will save his people from their sins." 22 All these things happened so that the word of the Lord would be fulfilled.  As the prophets said:
 
 > 23 "The virgin will give birth to a son, and they will call him Immanuel," which is translated God with us.
 
