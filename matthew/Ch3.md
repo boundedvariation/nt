@@ -2,7 +2,7 @@
 
 ## 3
 
-1 In those days, John the Baptist arrived, preaching in the wilderness of Judea, 2 saying, "Repent, for the Kingdom of Heaven is at hand". 3 For this is the man who Isaiah the prophet spoke about when he said, 
+1 In those days, John the Baptist arrived, preaching in the wilderness of Judea, 2 saying, "Repent, for the Kingdom of Heaven is imminent". 3 For this is the man who Isaiah the prophet spoke about when he said, 
 
 > "The voice of one crying in the wilderness;
 > prepare the way of the Lord
