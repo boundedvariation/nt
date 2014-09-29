@@ -1,13 +1,9 @@
 # MATTHEW
 
-## 4
+## 5
 
-5 "perched": maybe a stretch, but I think it's justifiable.
+3 I'm trying to get across ptochos as different from penos, so I use "beggar".
 
-10 "back off": a little more colloquial than I intend, but it's close to the sense, I think.
+21 they - I'm using the Jane Austen they rather than the clunky "he or she".
 
-13 can't find a definition for katalipon - will need to work check on that
-
-16 "Outsiders": I'm using for ethnoi throughout.  I might revise this later.
-
-24 "any sort of disease" is a cop-out to avoid the list of ancient illnesses that follows. ESV does it too, so I don't feel so bad.
+22 translating raka as f*** you is my most unjustifiable decision, but what else can you do?
