@@ -2,4 +2,18 @@
 
 ## 7
 
-1 Do not judge, so that you will not be judged. 2 For by the same decree that you judge, you will be judged, and by the same standard that you have measured, it will be measured out to you. 3 
+1 Do not judge, so that you will not be judged. 2 For by the same decree that you judge, you will be judged, and by the same standard that you have measured, it will be measured out to you. 3 Why do you see the speck in your brother's eye, but do not notice the beam in your own eye? 4 And how do you say to your brother, "Let me take the speck out of your eye?" and - look! - the beam is in your eye? 5 Hypocrite! First take the beam out of your own eye, and then you will see clearly to take the speck out of your brother's eye.
+
+6 Do not give sacred things to dogs, and do not throw your pearls before swine, or else your pearls will be tramped underfoot and then, turning, the pigs will attack you.
+
+7 Ask, and it will be given to you; seek and you will find; knock and the door will be opened to you. 8 For whoever asks will receive, and he who seeks finds, and to him who knocks, it will be opened. 9 For who among you men, if your son asks for bread, will give him a rock? 10 Or if he asks for a fish, will he give him a snake? 11 If there you, who are evil, know to give good gifts to your children, how much more will the father in heaven give you good things to those who ask him? 12 So whatever you want people to do to you, do it also to them. For this is the law and the prophets.
+
+13 Go through the narrow gate, for the gate is wide and way is easy that leads to destruction, and many are they who enter through it. 14 But the gate is narrow, and the way is hard that leads to life, and few are they who find it.
+
+15 Keep yourself away from false prophets, who come to you in sheep's clothing, but are rapacious wolves underneath. 16 From your fruit you will know them; Are grapes gathered from thornbushes, or figs from briars? 17 Every good tree produces good fruit, and every rotten tree produces worthless fruit. 18 It is not possible for a good tree to bear worthless fruit, nor is it possible for a rotten tree to produce good fruit. 19 Every tree that does not make good fruit is to be chopped down and thrown into the fire. 20 Therefore you will recognize them by their fruits.
+
+21 Not everyone who sasy to me, "Lord, Lord" will enter into the kingdom of heaven, but he who does the will of my father who is in heaven. 22 Many will say to me in that day, "Lord, Lord, did we not prophesy in your name, and cast out spirits in your name, and great works in your name?" 23 And then I will say to them, "I never knew you. Depart from me, you who never kept the law."
+
+24 Therefore anyone who hears these words and also performs them will be like a wise man, who built his house on a rock. 25 And the rain fell, and the torrents came, and the winds blew, and they set over the house, but it did not fall. For it was founded on the rock. 26 And anyone who hears my words and does not do them is like a foolish man who builds his house on the sand. 27 And the rain fell, and the torrents came, and the winds blew, and they set over the house, but it fell over, and the fall was spectacular.
+
+28 And when Jesus finished speaking, the crowd was amazing by his teaching. 29 For he taught them with authority, not like their scribes.
