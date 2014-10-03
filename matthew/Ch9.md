@@ -1,0 +1,9 @@
+# MATTHEW
+
+## 9
+
+1 Getting in a boat, he crossed over, and he went into his own hometown. 2 And they brought to him a paralytic, collapsed on a bed. And Jesus saw their faith and said to the paralytic, "Be healed, child. Your sins are forgiven." 3 And some of the scribes said among themselves, "This man blasphemes!" 4 And Jesus, seeing their concerns, said, "Why do you think evil in your hearts? 5 For what is easier, to say 'Your sins are forgiven' or to say 'Arise and walk'? 6 But so that you may you see that the so nof man has power on earth to forgive sins" - then he said to the paralytic, "Arise, pick up your bed, and go to your house." 7 Arising, he went to his house. 8 Seeing this, the crowd were afraid and marveled at God, who had given power to men to do such things.
+
+9 And Jesus went on his way, he saw a man named Matthew, sitting in the customs-house, and he said to him, "Follow me." And rising up, he followed Jesus. 10 Jesus was sitting at the table in his house, and many tax collectors and sinners were with Jesus and his disciples. 11 Seeing this, the Pharisees said to his disciples, "Why does your teacher eat with tax collectors and sinners?" 12 Hearing them, he said, "The healthy have no need of a doctor, but the sick. 13 Go and learn what this means: 'I desire mercy and not sacrifice'. For I did not come to call the righteous, but the sinners."
+
+14 Then the disciples of John came to him, saying, "Ourselves and the Pharisees fast, but why do your disciples not fast?" 15 And Jesus said to them, "Can the wedding-guests mourn while the groom is with them? The day will come when the groom is carried away from them, and then they will fast."
