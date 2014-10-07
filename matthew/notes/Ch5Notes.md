@@ -8,4 +8,4 @@ I used hunted down throughout this passage for dioko. I can't really decide how 
 
 21 they - I'm using the Jane Austen they rather than the clunky "he or she".
 
-22 translating raka as f*** you is my most unjustifiable decision, but what else can you do?
+22 translating raka as go to hell isn't perfect, but I'm still trying to think of something better.
