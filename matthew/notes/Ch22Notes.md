@@ -1,0 +1,21 @@
+# MATTHEW
+
+## 22
+
+1 Jesus answered them again, speaking in parables, 2 "The kingdom of heaven is like a king, who gave a wedding feast for his son. 3 He sent his servants to call for those who were invited to the wedding, but they did not want to come. 4 Again he sent his servants, saying, "Tell the invitees, 'Look, I have prepared the very best, my oxen and my veal have been slaughtered, and everything is ready. Come to the wedding.' 5 But the guests did not care so they went away, one to his farm, and another to his business, 6 while the rest of them grabbed his servants, mistreated them, and killed them. 7 The king was furious, and he sent his armies and killed those murderers and blew up their city. 
+
+8 "Then he said to his servants, 'The wedding feast is ready, but those whom we invited were not worthy. 9 Go to the alleys and invite whoever you find there to the wedding.' 10 His servants went out and brought together whoever they found in the streets, bad people and good people, and the wedding hall was filled up. 11 The king went to look at the guests, and he saw there a man not wearing proper wedding clothes. 12 He said to him, 'Friend, how have you come here without proper clothes?' And he could not say anything. 13 Then the king said to his servants, "Tie up his hands and feet and throw him out into the outer darkness. For in that place there will be weeping and grinding of teeth. 14 For many are called, but few are chosen."
+
+15 Then the Pharisees went and planned how to trap him with his words. 16 They sent their students to him, along with the Herodians, and they said, "Teacher, we know that you are truth if you teach the ways of God honestly, and you do not care what people think, for you do not look upon the appearances of men. 17 Therefore tell us, what do you think, is it proper to pay taxes to Caesar, or not?" 18 But Jesus knew their hatred and said, "Why do you test me, hypocrites? 19 Show me the coin that you pay taxes with," and they brought to him a denarius. 20 He said to them, "Whose image is engraved on this?" 21 They said to him, "Caesar." Then he said to them, "Then give to Caesar what is Caesar's, and give to God what is God's." 22 When they heard him, they were amazed, and they left him.
+
+23 On the same day, Sadducees, who say there is no resurrection, came to him and they questioned him, 24 saying, "Teacher, Moses said, 'If anyone dies without children, his brother must marry the widow and raise his brother's children. 25 A certain man has seven brothers, and the first married and died, and since he did not have any children, left his wife to his brother. 26 Similarly, the second and the third brother died childless, 27 until the seventh. Later on, the woman died. 28 Therefore in the resurrection, whose wife of the seven will the woman be? For all of them had her as a wife." 29 Jesus answered them, "You mislead people, because you do not the scriptures or the power of God. 30 For in the resurrection, they will neither marry nor be married. 31 You are ignorant of the word of God concerning the resurrection of the dead, which says, 32 'I am the God of Abraham, and the God of Isaac, and the God of Jacob.' Is God the God of the living or the dead?" 33 When they heard this, the crowd was astounded at his teaching.
+
+34 When the Pharisees heard that he had shut up the Saducees, they met together. 35 One of them, a lawyer, asked him a question to test him: 36 "Teacher, which of the commandments is the greatest in all of the law?" 37 He said to them, "'Love the Lord your God with all your heart and with all your soul and with all your mind.' 38 This is the first commandment, 39 and the second is similar: 'Love your neighbor as yourself.' 40 All of the law and the prophets hang from these two commandments."
+
+41 When the Pharisees had gathered together, Jesus asked them, 42 "What do you think about the Christ? Whose son is he?" They said to him, "The son of David." 43 He said to them, "How therefore can David, in the spirit, calls him his master, saying:
+
+> 44 The Lord said to my Lord,
+> sit at my right hand,
+> until I make your enemies under your feet.
+
+45 "If David calls him Lord, how is he his son?" 46 No one was able to say a word, nor did anyone dare to ask him anything else that day.
